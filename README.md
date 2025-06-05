@@ -1,1 +1,1 @@
-esse jogo e umjogo de uma cobrinha que come frutas ele foi inspirado no jogo da cobrinha que tinha em celulares antigos os crteditos vão para o mcriador do jogo, como jogar voce usa o mause no botoes apartenmtes na tela
+esse jogo e umjogo de uma cobrinha que come frutas ele foi inspirado no jogo da cobrinha que tinha em celulares antigos os crteditos vão para o criador do jogo, como jogar voce usa o mause no botoes aparentes na tela
